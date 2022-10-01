@@ -1,5 +1,10 @@
 # TBD
 
+Index
+
+1. [Chapter 1](#chapter-1)
+2. [Chapter 2](#chapter-2)
+
 ## Chapter 1
 
 <!-- 
@@ -301,3 +306,106 @@ Couple of minutes after she had left the village's farthest edge behind she turn
 Diana smiled to herself as she faced away from the duo and their dog, *It'll be good to have company... I've been lonely for far too long...*
 
 ---
+
+## Chapter 2
+
+<!-- 
+Chapter 2:
+    Indra is revels in the accumulated wealth of the empire -> Turned his palace into a brothel for the Nobles -> He's has multiple sexual partner and thinks of running away with the empire's coffers away from the war
+
+Goals:
+    Show the Indra of Dawn to be a Narcissist
+Plot points:
+    Indra walks through the castle to feel important and powerful, he hand picks maids to visit his chamber at night, he kills anyone who slights him in anyway
+    Indra is surrounded by sycophants who tell him how important he is and how great his achievements are:
+        They tell him he's the head of the most powerful empire in the world
+        They tell him how strong he is and how he can defeat any man he faces
+    Indra declares he'll fight the strongest gladiator of the City and Defeat him
+    Indra has sex with maids and servants in his service
+    Indra fights the gladiator, he's on the verge of defeat and orders his men to bring the gladiator to his knees
+    Indra beheads the gladiator and displays it to the crowd who first are dumbstruck by the display but then cheer for him
+    Indra invites his Lords to his palace for a feast (telling them about what is being served)
+    As Indra crosses the war-room he hears men talking about a recent attack by the shaedsgard near the border
+    Indra enters the war room and tells his man, Tallis, everything is going to be alright, he's the strongest person in the world and tells him that he recently defeated the strongest gladiator in the arena
+    Tallis bites his tongue and cheers Indra on.
+    While having sex with two maids, he has an idle thought of emptying the coffers of the empire and escaping towards the east
+ -->
+
+The palace of the Indra was located in the very heart of Dawn. The city sprawled around the palace walls and snaking roads criss-crossed through it. Sunrise was still hours away but the Dawnites were out of their bed, bathed and were going off to work. From the huge palace window that overlooked the sprawling city, Wylhem the Indra of Dawn watched his subjects bustling to work. He smiled, *More you work, the more money I'll have to spend.*  
+
+Having revolutionized tax laws by introducing income tax, Wylhem had amassed a massive wealth. He turned away from the window and walked across his bedchamber. The Indra's bedchamber was gigantic with a lofty 20 feet ceiling supported on towering pillars. The bed in his chamber would have dwarfed most rooms in Dawn. He looked at his reflection in the mirror and smiled, *I'm perfect.* he thought to himself. A woman wrapped her hands around his waist and kissed him, *I'm the greatest Indra.* he thought turning around to kiss the woman.
+
+"My Lord," the woman said in a husky seductive voice,  "Allow me to please you."
+
+Indra smiled and pushed her to the bed, "I'm done with you." he found his robe, folded, at the foot of the bed, "Pick this up for me." he ordered the woman who sheepishly obliged and handed him his robes. Wrapping the robe around him he walked to the door, "Get out of here before I return, you are of no use to me." He closed the door behind him and entered the well-lit corridor that interconnected all the rooms of the palace. *I'm not just the Indra of Dawn, I'm...* He walked through the corridor, his hands clasped behind his back and tailed by his mute guards. *Are they really mute?* he thought to himself.
+
+Contrary to popular belief held by the citizens of Dawn and folks in all corners of the world, Indra of the Dawn didn't sleep past noon. "Sir." A balding man with royal blue uniform paused as Indra crossed him, "Hail Wylhem of Dawn." He bowed low and waited for his king to pass. *I'm Wylhem of Dawn?* Wylhem thought and found himself deeply offended by the soldier's remark. He stopped and turned on his heels and found the balding man bowing, *I'm Wylhem of Dawn?* he thought angrily, *No! I'm not defined by Dawn. Dawn is defined by my rule.*
+
+"My Liege?" the soldier said, swallowing.
+
+"How did you address me?" Wylhem asked silently with an icy cold stare.
+
+"Hail Wylhem of Dawn." the soldier swallowed, still bowing low.
+
+"Do you think I'm defined by Dawn? Do you think I don't have an identity without Dawn?"
+
+"I didn't mean to offend you, My Liege." the soldier whimpered, "We've been taught to hail Your Excellency. My Lord, My Liege." the soldier went to his knees, "Please forgive me."
+
+"Guards," Wylhem turned and walked away, "Take his head where it can be seen by his children and his wife. It'll teach them how to respect their... Indra." *I'm more than Indra.* he thought.
+
+Wylhem continued to explore his palace, wondering about his identity, *Am I really Wylhem of Dawn? Am I Indra of Dawn?* paced slowly. The sun had crossed the horizon and yellow light of the morning sun filtered through the windows that lined the palace walls. Wylhem caught a painting from the corner of his eyes and his chain of thought was broken. He found himself looking at a majestic painting of his great-great-great-grandfather, Trafalgar, the first Indra of Dawn. He went closer to the painting and found himself asking, *Who am I?*
+
+Wylhem shook his head and turned only to find two maids walking across to-- *Hmm, they are beautiful.* he pushed his identity crisis away from his mind, *They'll do for today.* He pointed towards them silently and one of the guards methodically broke off from the formation and marched towards the maids. A moment later the two maids followed the guards sheepishly, their eyes staring at their feet.
+
+"My Lord." the curtsied and stood, trembling with fear, "We apologize for any incoveninence we've caused."
+
+Wylhem smiled, "It is quite alright." He lifted their head by their chins and looked them in the eyes, "I just want you to accompany me in my walks today."
+
+"Yes." the two maids said in unison looking relieved. Wylhem turned and continued to walk, he rested his arms around their waists and thought to himself, *I'm the most powerful man in this City. No. I'm the most powerful man in the world.*
+
+---
+
+Wylhem had slept with the two maids somewhere around fourth hour after noon, "When I come back, I need you to look exquisite and eager to please me." he walked through the long corridor of the palace a second time during the day, his thoughts about his identity had lingered but he suppressed them by lusting for the two maids he had left behind in his chambers, *Oh, I'm going to enjoy myself tonight.* he thought.
+
+"My Lord," a small man with a crooked set of teeth that complimented his crooked nose and a deceitful personality, "We are honored to be in your presence." *Ah, the Snakeman.*
+
+"My Liege," another man with an overly sweetened voice said the man went to his knees and kissed Wylhem's feet.
+
+"Rise," Wylhem said in a flat tone, "Minister Eckerhart"
+
+"Your Highness," A tall man with matted jet black hair and big earlobes bowed stiffly and withdrew to his corner holding a tome under his arms.
+
+*He reminds me of someone,* Wylhem thought as he circled the round table at the very center of the room and took his place at the high, embellished chair, "Let's begin."
+
+One after another his advisors updated him with the daily matters of the Kingdom and Wylhem inattentively nodded, *Do they expect me to burden myself with the trivial matters of the Kingdom?* Wylhem thought. *I'm supposed to be the Indra of Dawn, the most powerful man in this country. I've made this kingdom richer beyond measure. I've won battles and conquered territories.* "We've been hearing rumors about her," Indra heard the Snakeman speak with his characteristic lisp, "She'll be dealt with swiftly and without mercy."
+
+"Rumors about?" Wylhem straightened himself in his seat, almost excited about the daily reports Snakeman presented.
+
+"Traitor Diana," the Snakeman smiled slightly as his eyes glanced across the room to the corner of the matted hair man.
+
+"Hmm," Wylhem waved his hands,  "I assume, if the rumors have any weight, the Traitor will be dealt with." *Diana! Yes! That tall man reminds me of Diana. He has a striking resemblance to her.* One thing led to another and Wylhem found himself thinking about the two maids waiting for his return, *Oh my...* he smiled deviously to himself, *Things I'm going to do to them.*
+
+"Your Majesty," Minister Eckerhart said in his honey coated, delicate voice, "How do you want us to deal with it?"
+
+"Hmm," Wylhem straightened his back and wiped the smile from his face, "Deal with what?"
+
+"Your Majesty," Minister Eckerhart dropped his voice to a whisper, "We've been hearing rumors about a rebellion amongst the nobility of the kingdom that you are too weak to bring Glory back to Dawn. They think the bloodline of Trafalgar the First Indra of Dawn has weakened and it needs to be expunged."
+
+"Hmm," Wylhem rested his chin on the back of his hand and asked in a flat, unnerving voice, "What do you think Minister?"
+
+"About what Your Majesty?"
+
+"Has the bloodline of Trafalgar weakened? Do you think I'm unfit to rule the greatest Kingdom in the world?"
+
+"Your Majesty," the Minister bowed low, "You are the strongest man Dawn has ever seen and you have brought wealth to the Kingdom. Any man who thinks that the blood of Trafalgar has weakened is a fool."
+
+"Hmm," Wylhem nodded, "What do you think is the appropriate action?"
+
+"Whatever Your Majesty decides will be swiftly executed," Eckerhart said softly.
+
+Pleased with the Minister's answers, Wylhem rose to his feet and paced the room with his hands clasped together. "They think I'm weak to bring glory back to Dawn? Organize an exhibition, I'll fight the strongest duelist in all of Dawn and defeat him." Wylhem turned to face his advisor, "And once I've done that, the rebels will face their fate at my hands."
+
+"Your Majesty," Eckerhart nodded. Wylhem turned to his right and exited the room, *they think I'm weak and cannot bring glory back to Dawn?* He went straight to his bedchamber and found the two exquisite maids naked in his bed. Wylhem dropped his clothes and pounced at them, *I'm a strong man, I'm the strongest there is.* By the time he was done with the two maids they lay on his bedchamber's floor, bloodied and covered in scratches all over their bodies.
+
+
+[Go back](#tbd)
