@@ -407,5 +407,61 @@ Pleased with the Minister's answers, Wylhem rose to his feet and paced the room 
 
 "Your Majesty," Eckerhart nodded. Wylhem turned to his right and exited the room, *they think I'm weak and cannot bring glory back to Dawn?* He went straight to his bedchamber and found the two exquisite maids naked in his bed. Wylhem dropped his clothes and pounced at them, *I'm a strong man, I'm the strongest there is.* By the time he was done with the two maids they lay on his bedchamber's floor, bloodied and covered in scratches all over their bodies.
 
+---
+
+The sun scorched the earth and a cloud of dust had settled over Dawn. Wylhem heard excited voices of people walking through the streets to the Amphitheatre, *Yes,* Wylhem thought to himself as he paced his room near the window, *I can hear them excited about the match.* he thought. As he peered down from his window he saw soldiers in Royal Blue escorting the people to walk on designated streets to the Amphitheater. "This way, if you want a spot in the Amphitheater." A soldier roared pointing towards the east of the palace.
+
+A man walked in his room and sheepishly said, "Your Majesty."
+
+Wylhem turned on his heels and saw a tall, lean man with dark hair stand in a plain white tunic, *peasants,* Wylhem smiled deviously, *they are... mine.* he gestured for the man to get in his bed, "Take your tunic off," Wylhem said plainly as he turned back to face the window. *This will bring in more gold.* he thought as he saw mass of common citizens of Dawn walk towards the Amphitheater, *Make me the richest Indra, peasants.* he thought.
+
+"Your Majesty," the tall man said seductively.
+
+Wylhem drew the curtains of his room and dropped his robe as he walked up to the bed. He jumped onto the bed like a hungry lion, *I'm the Strongest.* he told himself. By the time he was done the tall man was knocked unconscious and barely breathing, "Guards." Wylhem called and pointed to the limp body of his latest prey. He wrapped himself in his robe and exited the room.
+
+Taking one turn after another, the Indra of Dawn reached the throne room where a royal entourage waited for him, "Your Holy Majesty," they went to their knees when he walked into the throne room, "The palanquin is ready."
+
+Indra scanned the room with haughty eyes, *Your Holy Majesty,* Wylhem thought to himself, *Today, I'll ascend to be the God King of Dawn.* Wylhem sat on the Throne of Dawn and looked at his loyal advisors, "Palanquin?" he asked with flat voice and his men looked at each other and swallowed, *You are right to be afraid of your God.* he thought.
+
+"Your Holy Majesty," Eckerhart bowed low and said in his usual sugary voice, "As the Indra of Dawn we prepared a royal Palanquin that'll be carried by the strong men."
+
+Wylhem stared at Eckerhart for a moment before he spoke plainly, "Prepare a chariot..." he paused, "I'll ride to the Amphitheatre on Erawan."
+
+"Your Holy Majesty..." Eckerhart gasped, "He's wild... It is not safe."
+
+Wylhem gave Eckerhart a cold stare and allowed the silence in the throne room to grow, "It shall be done." Eckerhart said when the silence has swollen to become an unbearable presence in the throne room.
+
+Minutes passed and Wylhem heard shouts and screams of agony before Eckerhart walked back into the throne room, wiping his forehead he bowed low. "Your Holy Majesty. He's ready."
+
+Wylhem rose and placed his crown of steel and gold on his temple and crossed the throne room with pride, *Noble and Peasants.* he heard Trafalagar's voice, *They are one and the same-- one cannot exist without the other.*
+
+Outside men were straining to keep Erawan-- the four tusked white elephants from rampaging. Wylhem walked upto the great white beast and ran his hand on his trunk and whispered something and the elephant calmed. The men around him stood stupifed as he climbed Erawan and raised his fist ordering the royal progression to move towards the Amphitheatre.
+
+As the progression approached the Amphitheatre more and more jaws dropped to the ground to see Wylhem riding the great white beast Erawan and people went to their knees as the king passed. From the Amphitheatre Wylhem heard the electrifying cheers of the spectators, *They are here to cheer me on.* Wylhem found his heart thump with excitement. As Erawan entered through the gate of Amphitheater a stunning silence engulfed the electrifying roars. Wylhem wheeled Erawan around as he idly scanned the packed Amphitheatre seats. *I'm your God King,* he thought to himself and for effect he thrusted his fist up in the air and the crowd roared with excitement.
+
+Wylhem descended the four tusked beast and circled the Amphitheatre, "Today," the announcer echoed in a loudspeaker, "Our beloved Indra, His Holy Majesty Wylhem will challenge the strongest gladiator in all of Dawn, the champion of Amphitheatre, Tartarus." stretching around Wylhem waited for his opponent to walk into the arena. "Your Majesty," the announcer approached instead, "The match will begin momentarily."
+
+Wylhem nodded, "Hmm."
+
+"Your Holy Majesty," the announcer swallowed, "Do you think it'll be safer for you to fight in an armor?" he pointed towards the armory.
+
+"I'm the strongest man in all of Dawn." Wylhem looked at him with a sideways glance and the announcer disappeared from his view. *I'm the strongest man. No, I'm the God King. I don't need no armor.* Wylhem looked around and found rebel lords sitting together in a pavilion that gave some respite from the scorching sun. Wylhem smiled at them deviously and turned his attention to the arena.
+
+A tall man, almost seven feet tall with arms as thick as Erawan's trunk walked in with armor of wrought iron. He raised his short, razor sharp sword up and the crowd cheered him on, "Tartarus." the Amphitheatre chanted in unison. Wylhem looked at his citizens with angry stare, *Your King is here and you chant for this monster*
+
+"Bring my sword." Wylhem ordered and his honor guard brought forward an ornate sword with broad blade and a royal blue sapphire embedded in the hilt. Wylhem picked the sword and unsheathed a blue blade and the crowd fell silent once again. "Isn't that... the Invincible Sword of Dawn?" someone whispered, "Yes... that is her sword... The Invincible Sword Of Dawn." Wylhem smiled as he swung the sword around skilfully and fell into an aggressive offensive stance.
+
+Tartarus drew his short sword and fell into a more fluidic stance, "Bring it on." he roared through his helmet, "You may be the King of Dawn, I'm the Champion of Amphitheater."
+
+The two gladiators exchanged a few spars, Tartarus drew first blood when he nimbly parried a heavy blow from Wylhem and cut his thighs in the follow through, limping Wylhem changed his tactic and allowed Tartarus to attack. *He's huge and I can beat him in speed.* Wylhem thought as the two champions circled each other drowning in the cheers from the crowd. Tartarus charged his sword close to his body and in a straight line with his forearm. Approaching Wylhem Tartarus swung his sword hard and thrusted his shield in Wylhem's side.
+
+Tartarus overwhelmed Wylhem with a flurry of swift slashes and perfectly timed stabs, *How can he move so fast?* Wylhem thought as he dodged a slash here and stabbed there. He caught a few with his sword as he struggled to keep up with Tartarus's speed. Wylhem thrusted his shield and it caught Wylhem in the face and cracked his lips. He stumbled back and Tartarus roared, "You can never beat me King of Dawn." Tartarus taunted taking off his helm "You are weak, I don't need these." He undid his armor and swung his sword by his wrist.
+
+Wylhem steadied himself and charged as fast as his bleeding legs allowed. With the Invincible Sword, Wylhem unleashed an attack never before seen, he slashed and hacked at blinding speed, he leapt and wheeled deftly but Tartarus was better. He dodged every attack and managed to dig his short sword three times. Wylhem stumbled backwards and fell to his knees. *How is this possible? I'm... I'm the strongest man. I'm the God King of Dawn. I've the Invincible Sword of Dawn.* Wylhem thought as it occurred, *I'm Dawn...* he smiled as he got to his feet. "Guards." he ordered and raised his strong hand.
+
+His honor guards jumped into the arena and surrounded Tartarus, with skills of hardened soldiers they disarmed the monstrous gladiator and kicked him to his knees. Wylhem walked up to the defeated gladiator as the crowd watched the act in silence with open mouth and teary eyes, "I'm the God King of Dawn," Wylhem said raising the Invincible Sword above his head, "A simple gladiator cannot defeat the might of Dawn." he dropped his sword, beheading Tartarus cleanly.
+
+He looked around the Amphitheatre and a moment later the crowd roared, "Our King. Our Lord." Wylhem smiled as he picked up the head of Tartarus and flung it towards the pavilion of his rebels. *This is what will happen if you ever rebel.* Wylhem told the lords in the ornate tent with his eyes who looked haughty and prepared to leave the Amphitheater.
+
 
 [Go back](#tbd)
