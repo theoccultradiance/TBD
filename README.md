@@ -463,5 +463,30 @@ His honor guards jumped into the arena and surrounded Tartarus, with skills of h
 
 He looked around the Amphitheatre and a moment later the crowd roared, "Our King. Our Lord." Wylhem smiled as he picked up the head of Tartarus and flung it towards the pavilion of his rebels. *This is what will happen if you ever rebel.* Wylhem told the lords in the ornate tent with his eyes who looked haughty and prepared to leave the Amphitheater.
 
+---
+
+Covered in bandages and a stick to support his limp, Wylhem wandered his palace. A woman followed around him like a loyal companion and smiled seductively everytime Wylhem gazed upon her. *The God King of Dawn.* Wylhem thought and smiled, *I'm their God... They'll build temples in my honor and pray.* From the other end of the palace corridor, Wylhem saw a man approach. *Minister.*
+
+"They are here." Eckerhart said bowing low.
+
+Wylhem nodded and dismissed the woman with a wave of his bandaged hand, "Go wait in my bedchamber." Wylhem ordered. After the match in Amphitheater, Wylhem had sent out a messenger and gathered his lords, rebels and loyals, by inviting them for a feast. *I'm officially going to change my title from Indra to God King.* he had told his advisors who waited for him at the edge of the Arena.
+
+Following Eckerhart through the maze-like corridor of the palace, the two stopped outside an embellished door,  "Your Holy Majesty." Eckerhart bowed low and pointed towards the door.
+
+Wylhem strengthened himself and pushed the heavy door with his bandaged hand. On the other side, the chatting Lords and advisors stopped talking and turned, "Your Holy Majesty," they said in unison and went to their knees. Wylhem nodded and walked in the room with his chin thrusting upwards. While his lords and advisors waited on their knees kissing the floor, Wylhem slowly scanned the room, *Yes. Bow you worthless Dawnites. I'm your God.* he told himself.
+
+Only after seating in his chair that was raised a few inches higher on the ground did Wylhem spoke in a soft, uninterested tone, "Rise." One by one his advisors took their place behind him. The Snakeman stood in the shadows on the right and Eckerhart stood to Wylhem's left. Once everyone had seated and fell completely silent Wylhem spoke once again, "As of this moment, I'm no longer Indra." Wylhem looked at his lords and their faces cheated them with a smile, "I'll be the God King of Dawn.'' He had expected his men to protest at this proclamation. *Yes, you are right to be afraid.* Wylhem thought, *Question your God and you'll face his fury.*
+
+"Let the feast begin." Wylhem waved his hand and servants filled in carrying the delicacies of the feast. He looked at his rebel lords and found them disgusted at the food being served to them, "Yes, eat that pile of shit, Lord Tilman."
+
+"Your Holy Majesty," Lord Tilman turned, "Why am I being served shit?"
+
+Wylhem chuckled and raised his hand and two honor guards brought Tilman to his feet, "You dare question your God King?" Tilman stood there and stared at Wylhem with angry eyes, "You think, the blood of Trafalgar has weakened? Eat that shit for trying to usurp the throne of Dawn and I might spare your life."
+
+"Your Holy Majesty," Lord Tilman said in a flat voice, "I'd rather die and have my honor disgraced."
+
+"Suit yourself." Wylhem looked at his guards and one of them drew his sword and sliced the head clean off the body, "If you dare question my authority over you or Dawn, this is what you'll get." Wylhem pointed towards the bleeding head and pile of shit served on a silver platter.
+
+Reaching back to his bedchamber he jumped on the woman who had been waiting for him. As he satisfied himself by beating the woman bloody a thought occurred to him, *I own Dawn and I can do whatever I want to, just like what I can do to this peasant woman. I can fuck her, I can beat her, I can kill her. I can do whatever I want, I'm the Strongest man there is. I'm the God King. No, to these lowlifes, I'm God.*
 
 [Go back](#tbd)
