@@ -489,4 +489,212 @@ Wylhem chuckled and raised his hand and two honor guards brought Tilman to his f
 
 Reaching back to his bedchamber he jumped on the woman who had been waiting for him. As he satisfied himself by beating the woman bloody a thought occurred to him, *I own Dawn and I can do whatever I want to, just like what I can do to this peasant woman. I can fuck her, I can beat her, I can kill her. I can do whatever I want, I'm the Strongest man there is. I'm the God King. No, to these lowlifes, I'm God.*
 
+---
+
+
+
+<!-- 
+Chapter 3: 
+    Ganesh waits for Indra revelry to end -> Ganesh thinks about ways to defeat the Asura army -> He's refining plans in his head -> Indra sees him (with a woman pleasuring him) -> Ganesh hesitates but continues -> Ganesh tells about current onslaught of Asura army and how they are using Trebuchet and Battering rams to destroy the Deva strongholds -> Ganesh claims they'll be at the gates of the capital within two weeks if no action is taken to stop them
+
+Goals:
+    Demostrate Tallis' love for his country and the problems brewing in the world. Trades faltering, Shaedsgard rising, skirmishes for the control of the river water, enemy spies within the 
+Plot points:
+    Tallis reads books on warfare and studies various military tactics from the past
+    Tallis reads about a fight Diana fought a decade ago against a horde of barbarians from the north and how she defended the country from the brutality
+    Tallis has been slowly growing his own network of spies and recruiting loyal men
+    Tallis gets report from the spies in Shaedsgard about their recent military developments and change of regime
+    Tallis goes back to the books to find ways to sabotage the new leader of Shaedsgard
+    He tries to warn Wylhem about potential war. He tells them about rumors he's heard about Shaedsgard military investments and it is time we dedicated more gold to better equip the Dawnite Army
+    Wylhem carrying his mother's sword-- the Invincible Sword of Dawn-- tells him that he's strongest man in the world and he can lead against any army and destroy them
+    Tallis wonders what her mother would do in such a situation. Would she rebel? No, she'd never rebel. She had always been loyal to the crown and throne of Dawn.
+    Tallis tries to remember why her mother was exiled and why he had to grow up without parents
+
+Plot Points:
+    Part 1:
+        Show Tallis to be nerdy and booksmart
+            Tallis goes around the palace talking to people from variety of fields
+                he listens to engineers working on sanitation projects and he talks to economists to understand about growing troubles of Dawn. He talks to military general raising concerns about more skirmishes up north and west with Shaedsgard and ____  
+            Tallis in his room, reading books, analysing the military tactics Diana used to defea the barbarian horde of the north.
+                To defeat chaotic barbarian horde, Diana formed a highly disciplined miliary formation. The archers were placed at the very center. Infantry with long pikes and thick shields formed the diamond shaped wall. The cavalry flanked the sides and were hidden. When the hordes launched attack, the archers shot fire arrows. Center also had soldiers throw a ball of cow dung and oil set ablaze mid air by an archer. As the horde grew closer infantry lowered their pikes covered with poison. as the first wave of attack ended, cavalry crushed the enemy from the flanks
+    Part 2:
+        Tallis is disturbed by a knock on his door with a messenger
+            Tallis, after reading the message leaves the palace and goes through the City of Dawn and enters an underground granary
+            There he meets a beautiful woman
+            woman asks Tallis to marry him and Tallis declines
+            Woman goes on to give him updates about the new recruits to his network of spies
+            Woman updates him about the recent changes in Shaedsgard regime
+                The new leader of Shaedsgard is the dreaded military general: Vyktor
+            Woman tells him a story about Vyktor
+                Vyktor was a runaway from Dawn. He was accepted into shaedsgard. Over time he joined the Shaedsgard police that patroled the kingdom and maintained law and order. Vyktor quickly became known as Bonebreaker. He would break the bones, depending on the their crime, of the criminals. His practices were too violent for Shaedsgard which is known for it's bloodlust. He then joined the military and rose to power. The one thing he depises more than anything is arrogance and in particular the arrogance of Dawn. He's on a personal vendetta to destroy the Kingdom
+    Part 3:
+        Tallis dismisses the woman and tells her to wait for new orders
+            He goes back to his study and reads on variety of sabotage techniques
+            He discusses his ideas with snakeman a master saboteur
+        Tallis goes to wylhem and tells him about potential war with Shaedsgard and about their heavy investments in military upgrades. Wylhem dismisses Tallis and his worries
+        Tallis is disappointed but he remembers his mother; She always protected Dawn and her people; he goes back to the the books to find a way to convince the King to upgrage the military
+
+-->
+
+"The palace of Dawn was built 7 centuries ago when the tribes of the area had come together and elected the strongest tribesman as their leader who'd usher them into a new age." Tallis told one of the guards who was walking with him to his left, "The Palace was built to weather severe avalanches and remain warm in cold waves."
+
+"Why has the palace aged if it was built 7 centuries ago, Councilman Tallis?" the guard asked as the two continued to walk through the corridor. Sun had just risen over the horizon and Tallis was already making his way to his office sequestered in the northern wing of the palace.
+
+"Ah," Tallis raised his finger as he continued, "Modern building are made from kiln baked bricks, they are cheap but they don't have the strength of chiselled stone. Nature is stronger than us." Tallis tilted his head to his left and continued towards his office. The guard had fallen quiet and the corridor echoed with their footsteps.
+
+"Soldier," Tallis scratched his beard, "Indulge me, what is our Kingdom's biggest issue?"
+
+"Councilman?" Guard's precise march buckled for a moment, "I don't understand."
+
+"Dawn has stood proud for seven hundred years," Tallis sighed, "In that long history we've made mistakes, we've weathered uncertain times but we've always learned something.
+
+"Take for example, roughly three centuries ago Dawn was consumed by draught. Famine soon followed. We lost half our population to hunger and malnourishment, but it taught us a lesson. Do you want to guess what that lesson was?"
+
+"Umm," Guard thought for a moment, "We plan our resources?"
+
+"Excellent," Tallis praised the guard, "We learned to plan our resources, we built granaries to save extra harvest. So Soldier, tell me what would our descendents learn from us?"
+
+"Councilman," Guard paused, "I think our time is up." He pointed towards the door of his office and clicked his heels together and saluated the man before turning 180 degrees and going back the way they came.
+
+*Hmm,* Tallis sighed, *It's a brand new day. It is like being in a prison-- a very big, luxurious prison.* he closed the door of his tiny office behind him and dropped his cloak on to the floor. *Mother,* he looked at Diana's dagger decorating his table and bowed his head in reverence, *Please guide me through these uncertain times.* he took in a deep breathe and sank in his chair.
+
+"Battle of North, a lesson in military tactics." Tallis read the title of the book that lay in front of him before flipping it open to a bookmarked page.
+
+Tallis studied the book carefully, taking in the material about the tortoise formation. *Hmm, generally archers are positioned in the back exposing them to surpise attacks from the rear. It is astonishing why no one ever thought of protecting the archers and bringing them to the center.* the read more about how the tortoise formation had devastated the first wave of enemy attacks.
+
+*So bringing in the archers to the very center and using shields and pikes to defend them crushed two waves of enemy attacks?* Tallis noted it down in his mind, *The only drawback I see of this formation is when attacked by horsemen!* he idly played with the Diana's dagger and continued to analyze the pros and cons of tortoise formation. *Hypothetically, if the archers are able to release volley of arrows at twice or maybe even thrice the current rate and have enough arrows in their quiver...* Tallis took a piece of paper and scribbled something on it, *This sounds promising... if we can create a bow-- an automatic bow that fires arrows at thrice the current rate...*
+
+He continued to read the Tome. He spent hours sitting and analyzing the various dirty tactics Diana used.The sunlight had reached its zenith hours back and Tallis studied the book deligently  *That is bloody brilliant, mom.* he smiled when he read about how Diana dressed a small battelion of her soldiers in enemy uniform and sent them behind the enemy lines.* he paused trying to think of reasons why it won't work now, *Well, for starters, people already know about this tactic. I'm sure Shaedsgard army has secret keywords that'll be used to verify each other's identities. If they don't...* he looked outside the window and saw the shadows in the wrong direction, *Hang on... It's already evening.* 
+
+Getting up from the chair, he moved around his small office to stretch his legs, *I should talk to General Mykel.* he pulled up a loose paper and placed it flat on his desk, *Hmm, he'll have insights on these ideas...* he found his inkwell and dipped his pen in it.
+
+<!-- {Letter from Tallis to General Mykel} -->
+As he sealed the letter with a red wax and his family's crest a Trident, someone knocked on his door, *He's early today.* he thought putting the letter securely in his pocket.
+
+"Soldier Harry," Tallis said as he opened the door and paused midsentence, realising it wasn't Harry waiting for him at the door, "Yes how may I help you?"
+
+"I was asked to deliver this to you." the man handed him a bunch of twigs wrapped in hemp string. 
+
+Tallis with a straight face took the twigs with him and said with a pleasant smile, "Thank you, good man!" he closed the door behind him and went back to his desk with twigs in one hand. He undid the string that held the twigs together and aranged them in careful order, *Ah, she's here and wants to meet tonight!* he smiled. It was an genius idea to encrypt messages with twigs. When placed in a certain order the twigs revealed basic messages like time of meeting. *Mom, you've always been a genius!* he thought.
+
+---
+
+The underground tunnels of Dawn were an architectural marvel. Built a millennium ago, these tunnels connected every part of the city to the palace grounds. At first it was used as an escape route in times of uncertainty and political turmoil. But now, they had become a huge threat to the safety of the Palace and the King. *How did they even manage to build this tunnels with archaic technology?* Tallis thought as he walked through the narrow, claustrophobia inducing tunnels.
+
+As he moved through the tunnels he recalled a snippet of text he had read about these tunnels in a book his mom had handed him over when he was little child, *The network of tunnels were built over time a century, the very first one -- the one that I'm walking in right now-- was built to use as an escape route, leading from the palace to the outskirts of the city.* Tallis smiled. 
+
+The flame on his torch fluttered for a moment revealing the end of the tunnel to be close by, *I wonder how she's been doing?* Tallis thought, *Last time I met her she was a terrifying young girl who didn't hesitate a few bones.* he thought as he exited the tunnel and into a moonlit field. 
+
+Looking around he quickly extinguished the torch and walked towards an old temple, *Ah the temple of Alzym-- The God of Darkness-- for without him there wouldn't be light.* Tallis touched the temple walls with a little reverence and circled around to the front. 
+
+"You are late, Tallis.* a raspy voice of a woman who used to scream as a child echoed.
+
+"Emma," he smiled as he was happy to see his friend once again, "It is good to see." 
+
+Emma walked upto him and kicked him in the groin and then laughed heartily, "It is good to see you Tallis, you've grown taller than I could remember.* she compared their heights by standing shoulder to shoulder with him, "Yes a good head taller than I last remember."
+
+"Thank you," Tallis said, he took her hand and kissed it, "You've grown, um, beautiful?"
+
+Emma sat on the staircase that led to the temple inside, "Is that a question?"
+
+"Last I remembered you broke a guy's bones who called you pretty." Tallis sat next to her and they looked at the dark sky together, "No one ever comes here anymore! Alzym has fallen out favor, people worship Kafifa -- the Goddess of Light and eternal bliss. Humans surprise me Emma! People change gods to suite their purpose. They worship to get their 'wants' fulfilled."
+
+Emma listend to him ramble on about how religion that was once an instrument of unity has been causing even greater divide than the world had previously known. Tallis looked at her as he continued to tell her about various books he read on religion and how every religious texts preached the superiority of their god and their way of life, "You are bored." he suddenly stopped.
+
+"No," Emma touched his hands, "continue, please! It is good to listen to you!"
+
+Tallis laughed, "Let's get back to the matter at hand!"
+
+{Emma describing Tallis about the situation in shaedsgard}
+
+By the time Emma had finished narrating her time at Shaedsgard, Tallis' face had lost all it's color, "That is just..." Tallis got to his feet and paced the temple hall, his footsteps echoed, "We... Dawn is not ready Emma."
+
+Emma nodded, "What are you gonna do?"
+
+Tallis looked around and over his shoulders, "The king... The king has been blinded by his ego. His sycophants are feeding him lies of grandeur... No matter, I'll have to bring this to the King, I'll have to raise alarms..."
+
+"Hmm," Emma smiled, "There's one last thing I want to talk about!"
+
+"What is it Emma?" Tallis held her hands.
+
+"I'm in love with you Tallis," Emma said with her usual matter-of-fact voice, "Ever since I was a little girl, I looked up to you. You are brave, you are fiercely loyal, you take care of your people Tallis. You are a perfect man. Will you marry me, Tallis?"
+
+Tallis smiled and embraced her, "Sweet Emma," Tallis sighed, "You know I can't do that... I'm not the man you think I'm."
+
+Emma sighed and slapped him, "You are, you dummy!"
+
+"No matter," Tallis clasped his hands behind his back, "I need to take care of the mess we are in. I need to prepare for the eventuality."
+
+"What are my orders?" Emma stood straight.
+
+"Emma," Tallis turned around to face away from her, "I ask too much of you, but I need you back in Shaedsgard and be as close to General Vyktor as you can. Ideally, it'll be great if he takes you as his lover."
+
+"I'll do it," Emma said confidently, "I can do anything for you, Tallis!" She turned around and marched out of the temple.
+
+Tallis watched his friend go with a heavy heart, *What have I asked her to do!* Tallis thought to himself, *I'm using her to get information.* a tear bubbled in his eyes, *I'm not the man you think I'm Emma! Look what I just did, I sent you off to sell yourself.*
+
+---
+
+The way back to his office was a long one, the torchlight kept him from getting lost along the way. *What am I going to do?* he thought as he snaked through the city underground, *The Indra doesn't trust me... he didn't trust my mother who sacrified everything for the kingdom.* 
+
+As he approached the palace he carefully extinguished the torch and listened for footsteps. A moment later he pushed the stone doors open and squeezed himself into the palace grounds, *If I tell him, I have a spy network in foreign lands... He'll skin me alive.* Tallis scratched his stubble, *Maybe I'll find something in the books.* he chuckled.
+
+Tallis lit a candle in his office and collapsed in his chair, *The fuck, I'm going to do now?* he played idly with his mother' dagger. The room had always felt like home, but today it felt different, distant, *Mom, what would you do?* he thought as he looked around the room and smiled as his childhood flashed in front of his eyes.. He had carefully decorated the office just to look like her mother's study. As a kid, Tallis often snuck into his mother's room to read texts on strategy.
+
+Getting to his feet, he picked up a book from the shelf and idly flipped through, *At this point, if I tell anyone about Emma or my network, I'm done. I need start a rumor, I need the King to hear this from someone else, probably Snakeman or Minister Eckerhart or General Mykel.* Tallis thought, *No... I cannot start a rumor, for one I don't have a network within the kingdom, and second Snakeman would trace it back to me. I need to be discreet.* there was knock on his door and Tallis sighed, *Harry, you've got to leave me be.*
+
+"Sir," the soldier smiled as Tallis opened the door, "Are you ready to leave?" Harry asked, Tallis could see Harry hated this assignment as much as he did.
+
+"Soldier," Tallis stood straight behind the door, "I've work to do, I don't think I can leave tonight."
+
+"Sir," the soldier smiled again, "My orders are to take you back to your house latest by midnight." 
+
+Tallis sighed and opened the door further, "Take a seat while I get ready."
+
+"Thank you sir," Harry stood straight and alert just outside the door, "I can wait right here." 
+
+"Whatever helps you sleep." Tallist said. *The snakeman and Eckerhart are foolish and sycophants, Indra knows that much. I've seen him doubt their advice before, no this info shouldn't come from them.* Tallis wrapped himself in his coat and tucked a tomb on chess under his armpits. "Let's go, son!"
+
+Harry escorted Tallis back to his apartment at the other side of the city, they turned here, slipped onto a moonlit avenue there. *Yes. The intel should definitely come from the General.* Tallis crashed into Harry who had stopped to talk to a comrade. "I'm so sorry, Soldier." Tallis bowed his head.
+
+"Yo," the other nameless soldier raised a hand and gave a casual salute, "I'll see ya at the tavern later tonight." 
+
+"Tavern?" Tallis asked as the two continued to walk through the city.
+
+"Yes," Tallis saw Harry smile, *This one is genuine*, "We soldiers of the 133rd division often hang around this tavern near the barracks for a night cap."
+
+"I see." Tallis, "Don't let me keep you waiting then, son." he opened the door of his house and got behind it.
+
+"Thank you sir," Harry turned around and walked away before circling back to him, "Sir, be good. You are being closely watched."
+
+Tallis smiled wide, "I know. Ever since I was a little kid and they sent my mother away."
+
+"Between you and me sir," Harry looked over his shoulders, "I think Lady Diana was the greatest General the Kingdom of Dawn had ever seen."
+
+"Thank you, Soldier." Tallis gave a weak smile as tears began to well up in his eyes.
+
+Next morning, Tallis woke up earlier than usual and dressed himself for a formal meeting-- wearing the royal colors of the Kingdom. *Ugh...* he sighed as he tried to fasten the cloak over his shoulders. *General Mykel should have received my letter, I hope he's willing to talk to me.* Tallis straightened his hair in the mirror.
+
+He cracked the door open and found the street empty, *Okay, time to make a difference.* he steeled himself. Taking deep breathes he peeled himself out of his house and donned his hood up. *The Kingdom intelligence and police are stupid.* Tallis thought to himself, *They've put me in house arrest but no one mans the door. No one sits around the corner to keep an eye out on me.* Tallis shook his head with disappointment.
+
+General Mykel lived a few blocks away in a house owned by the kingdom. *General Mykel.* Tallis recalled his own childhood, *You were my mother's most loyal lieutenant...* he shook his head and wrapped his cloak tighter, suddenly the air felt colder to him. Tallis looked around and found people beginning to come out of their houses and  go to work, *I need to hurry.* He finally reached General Mykel's house.
+
+Taking a deep breath he rapped the heavy wooden door three times and waited, *General Mykel, I hope you do right thing this time.* he looked over his shoulder, *Not a single man tailing me. Snakeman is using all the resources to find my mother.* He heard footsteps approaching the door and straightened himself.
+
+"Tallis," an old man opened the door, "Good morning, son!"
+
+"General Mykel," he brought his hand forward for a formal handshake, "I have something important to discuss."
+
+"Ah, yes!" General Mykel nodded, "I received your later yesterday. They were some really interesting ideas in their about upgrading our weapon design."
+
+"General," Tallis looked over his shoulder to see no one was tailing him, "this is something else, something far more bigger and important."
+
+General studied Tallis for a moment before pushing the door further open, "Let's talk over a cup of tea. Or do you rather prefer coffee?"
+
+"Coffee works," Tallis swallowed, "I hope you trust me, General. This is a matter of Kingdom's security."
+
+Mykel nodded and put a hand on Tallis shoulder, "I've made a lot of mistakes in my life, but I've never compromised the security of our Kingdom."
+
+---
+
 [Go back](#tbd)
